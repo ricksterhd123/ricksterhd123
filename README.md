@@ -1,5 +1,3 @@
-# ++++++++[>++++[>++>+++>+++>+<<<<-]>+>+>->>+[<]<-]>>.>---.+++++++..+++.>>.<-.<.+++.------.--------.>>+.>++.
-
 I am a 21 years old student software developer with too many interests and unfinished projects ¯\_(ツ)_/¯
 
 - 📫 How to reach me: ricksterhd123@gmail.com
